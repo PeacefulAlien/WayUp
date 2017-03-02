@@ -1,6 +1,9 @@
 # WayUp
-Fortune Favors The Bold 
-Hi Hooman:
+Hi hooman:
 
-Here I am, determined to commit myself to the path of a software developer.
-Before you try it, you never know it.
+Here I am at the new office at EDAG.
+I have never liked myself so much in the last few years.
+This is how it tastes like to have a dream. 
+<3 
+Dream and persistence, that is all for now.
+sun
